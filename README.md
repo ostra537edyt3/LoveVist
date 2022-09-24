@@ -1,0 +1,5 @@
+# LoveVist
+
+Privacy Policy
+
+Terms
